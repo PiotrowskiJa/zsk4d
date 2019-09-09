@@ -1,0 +1,2 @@
+# zsk4d
+szkola
